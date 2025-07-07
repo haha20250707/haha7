@@ -11,4 +11,4 @@
 
 想要免费观看日本AV免费影片？这些网站提供了大量高清、更新及时的视频资源。影片按类型和演员进行分类，帮助你快速找到想要观看的内容。每个视频的页面都提供详细的影片介绍，让你了解影片时长、画质和演员等信息。此外，平台还支持自动调整视频画质，确保在不同网络环境下播放顺畅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/haha20250707/haha7 ）</span>
